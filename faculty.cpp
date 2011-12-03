@@ -1,1 +1,1 @@
-// suck my nya 
+// suck my nya zalupa
